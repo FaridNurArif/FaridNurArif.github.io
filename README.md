@@ -1,1 +1,0 @@
-# FaridNurArif.github.io
